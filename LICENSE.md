@@ -1,4 +1,4 @@
-#  
+#  Experience jujutsu shenanigans like never before with jujutsu shenanigans Scripts updated, the #1 Script. Includes auto-upgrade and invisibility for
 
 
 
